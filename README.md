@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jay
+- 📫 How to reach me many a way 😭 but discord is best: jayjfn
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: E is my favorite letter with 7 as my favorite number
